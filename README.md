@@ -1,2 +1,0 @@
-# osmania-university-flame
-_____
